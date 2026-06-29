@@ -1,4 +1,4 @@
-
+Get the ultimate StrongVPN addon with ultra-secure StrongVPN Addon | cross-platform-support + IKEv2-support. Featuring cross-platform-support and IKEv2-support, it's the best
 
 
 
